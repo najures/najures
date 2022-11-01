@@ -1,4 +1,4 @@
-oi oi, eu sou a najures 😛🤟🏻
+Oi oi, eu sou a najures 😛🤟🏻
 ~ seja bem-vindo ao meu perfil <3
 - 👾 Game Designer em desenvolvimento
 - 🎨 Graffic Designer da equipe All Might
